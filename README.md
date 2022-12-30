@@ -41,7 +41,7 @@ Check these repos:
 
 https://discord.gg/6gM2RHGU
 
-Discord: divine#1890
+Discord: saiki#6328
 
 # Donate 
 
